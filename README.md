@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoshiExsalted
+- 👀 I’m interested in programming 
+-In feburary i will be attending a focus class that will teach me the basics of programming 
+-I aim to have a career in software engineering 
+-If you want to contact me i am available @jeanlouisjosh9008@gmail.com
